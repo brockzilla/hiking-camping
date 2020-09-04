@@ -73,16 +73,14 @@ It might also be good to bring a little soap ([biodegradeable](https://www.rei.c
 ## Toiletry & First Aid
 
 Every-day use (and scented):
-- Toothbrushes & Paste ([biodegradeable](https://www.amazon.com/dp/B078W3QL7V/))
+- [Toothbrushes](https://www.gossamergear.com/products/toothbrush) & (biodegradeable) [Paste](https://www.amazon.com/dp/B078W3QL7V/)
 - Sunscreen
 - Tick/mosquito Repellant (wipes)
 
 Just in case:
-- Syringe (with small tip for cleaning wounds)
-- Bandages (fabri, hydrogel, butterfly)
+- Bandages (fabric, hydrogel, butterfly)
 - Antibacterial ointment
 - Blister Pads
-- Ace Bandage
 - Leukotape / Athletic Tape
 - Pills (Antihystomine, Antiinflamatory, Antidiaretic)
 - Gauze
@@ -95,7 +93,7 @@ Just in case:
 - Trowel
 - [TP](https://www.youtube.com/watch?v=LHv2dIM3t9I) in ziplock
 - Sanitizer
-- Wet Wipes
+- Wet Wipes (for disasters)
 
 ## Miscellaneous
 
