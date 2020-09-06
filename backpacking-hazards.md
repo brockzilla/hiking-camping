@@ -1,4 +1,4 @@
-# Hazards
+# Hiking Hazards (in California)
 
 A good general guide:
 https://bigsurtrailmap.net/hiking-basics.html
