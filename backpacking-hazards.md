@@ -9,7 +9,7 @@ https://bigsurtrailmap.net/hiking-basics.html
 
 ### Stinging Things
 
-[A Comprehensive Guide to Yellow Stripey Things](https://www.reddit.com/r/interestingasfuck/comments/bjjyqr/a_comprehensive_guide_to_yellow_stripey_things/)
+[Know your Yellow Stripey Things](https://www.reddit.com/r/interestingasfuck/comments/bjjyqr/a_comprehensive_guide_to_yellow_stripey_things/)
 
 ### Mosquitoes
 
@@ -22,3 +22,11 @@ https://bigsurtrailmap.net/hiking-basics.html
 ### Mountain Lions
 
 [Be Large, Shout, Fight Back](https://www.openspace.org/sites/default/files/Midpen-mountain-lion-habitat-warning-sign.png)
+
+### Wildfires
+
+[Monitor via Cal Fire](https://www.fire.ca.gov/incidents/)
+
+### Air Quality
+
+[Check the AQI](https://www.purpleair.com/map?opt=1/mAQI/a10/cC0#5.2/36.58/-119.851)
