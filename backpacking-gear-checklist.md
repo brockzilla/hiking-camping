@@ -26,7 +26,7 @@ For one to two nights, temperate climate, older-than-toddler kids.
 
 Three groups:
 - What you'll eat the first day
-- What you'll eat the rest of the trip (has to fit in [BearVault](https://bearvault.com/)
+- What you'll eat the rest of the trip (has to fit in [BearVault](https://bearvault.com/))
 - What you're leaving in the car or bear box to motivate you back
 
 Breakfasts
