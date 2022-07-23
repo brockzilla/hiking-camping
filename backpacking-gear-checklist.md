@@ -85,7 +85,7 @@ Just in case:
 - Pills (Antihystomine, Antiinflamatory, Antidiaretic)
 - Gauze
 - Tweezers
-- Vaseline
+- Vaseline (for lips, or chafing)
 - Eyedrops
 
 ## Poop Kit
@@ -99,9 +99,9 @@ Just in case:
 
 - Map/Permits
 - Headlamps
-- Bandanas
-- Small towel for scrubbing dirty parts
-- Whistle
+- Bandanas (as a mask or for snot)
+- Small towel (for scrubbing dirty parts)
+- Whistle (often built into backpack)
 - Repair Kit (straps, cordage, tape, needle/thread, etc)
 - Fun Kit (deck of cards, [Qwixx](https://www.amazon.com/Qwixx-Fast-Family-Dice-Game/dp/B00J57138C/ref=asc_df_B00J57138C/), [The Quiet Year](https://buriedwithoutceremony.com/the-quiet-year), [journals](https://fieldnotesbrand.com/), etc)
 
