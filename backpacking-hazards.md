@@ -33,7 +33,7 @@ https://bigsurtrailmap.net/hiking-basics.html
 
 ### Rattlesnakes
 
-[Watch where you step, strike distance is half its body length](https://wildlife.ca.gov/Keep-Me-Wild/Rattlesnakes)
+[Watch where you step, strike distance is half its body length](https://wildlife.ca.gov/Keep-Me-Wild/Rattlesnakes), when bit: [no ice or pain relievers, track swelling size and symptoms, get to hospital](https://www.snakebitefoundation.org/blog/2018/9/6/how-to-survive-a-snakebite-in-the-wilderness)
 
 ### Mountain Lions
 
