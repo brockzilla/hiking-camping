@@ -20,7 +20,7 @@ For one to two nights, temperate climate, older-than-toddler kids.
 - Water Bottles (1 liter Smartwater bottle for each, plus a 2 liter bladder)
 - Nuun Tablets (for when water gets boring)
 - Instant Coffee ([Nescafe 3-in-1](https://www.amazon.com/Nescafe-classic-CASE-28-18g/dp/B006WAJKL2/ref=sr_1_4)) & Hot Chocolate
-- Beer/wine/whiskey
+- Beer/wine/whiskey (can be worth the weight)
 
 ## Food
 
@@ -33,15 +33,15 @@ Breakfasts
 - Oatmeal + Dried Fruit
 - Bacon (fried night before)
 
-Lunch
+Lunches
 - Pre-made Sandwiches (first day)
 - Tortillas & Hard Salami
-- Pringles, Pretzles
-- Oatmeal Creme Pies
+- Pringles, Peanut Butter-filled Pretzles
+- Little Debbie PB&J Oatmeal Pies (so under rated)
 
-Dinner
-- Cup Noodles/Ramen
-- Dehydrated Meals
+Dinners
+- Cup Noodles/Ramen (bulky, first night)
+- Dehydrated Meals (compact, second night)
 - Smores Poptarts
 
 Snacks
